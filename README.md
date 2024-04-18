@@ -6,3 +6,8 @@ https://github.com/dineshnanda16/Codsoft-Ui-Ux-intern/assets/86335859/3559a1b3-f
 Task-2
 
 https://github.com/dineshnanda16/Codsoft-Ui-Ux-intern/assets/86335859/f9992dfc-9a31-430b-a144-f1c8f1fd2817
+
+
+Task-3
+
+https://github.com/dineshnanda16/Codsoft-Ui-Ux-intern/assets/86335859/8ace44ff-95d0-46b6-9459-b3ac153dea51
